@@ -1,4 +1,4 @@
-
+Get the ultimate Inkscape for macOS filter with Inkscape for macOS updated Filter: masking tools & 3D rendering. Featuring masking tools and 3D rendering, it's the best choice for
 
 
 
